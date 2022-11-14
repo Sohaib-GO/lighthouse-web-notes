@@ -1,4 +1,4 @@
-# [Sohaib]'s Notes
+# Sohaib's Notes
 
 ## Summary 
 
